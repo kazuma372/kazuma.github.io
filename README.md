@@ -1,1 +1,1 @@
-# satsumaimo372.github.io
+# kazuma372.github.io
